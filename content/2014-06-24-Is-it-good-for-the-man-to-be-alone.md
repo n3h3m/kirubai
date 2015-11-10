@@ -12,9 +12,9 @@ In any marriage sermons usage of this verse is very prominent. This justifies th
 >Genesis 2:18(NIV)
 The LORD God said, "It is not good for the man to be alone. I will make a helper suitable for him."
     
-The glad thing about 21st century is, Christians are getting exposed to enough tools, alternate view points and possibility of connecting with relevant individuals who makes sense. This in deed created the effect of reading Bible in larger context which wasn't populat before. As Pastor Prince usually says 
+The glad thing about 21st century is, Christians are getting exposed to enough tools, alternate view points and possibility of connecting with relevant individuals who makes sense. This in deed created the effect of reading Bible in larger context which wasn't popular before. As Pastor Prince usually says 
   
-    "If you take the 'text' out of 'context' what you are left with is 'con'" - Joseph Prince
+    "If you take the text out of context what you are left with is con" - Joseph Prince
     
 It applies to translators too, NIV as a thought-by-thought translation often stands as a good target for further validations at the reader level.
 
