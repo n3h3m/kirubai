@@ -12,11 +12,11 @@ In any marriage sermons usage of this verse is very prominent. This justifies th
 >Genesis 2:18(NIV)
 The LORD God said, "It is not good for the man to be alone. I will make a helper suitable for him."
     
-Spending time with people like Jesudian and listening a lot from Joseph Prince, Jonathan Welton etc one important habit I gained is reading verses in context possibly with larger context. As Pastor Prince usually say 
+The glad thing about 21st century is, Christians are getting exposed to enough tools, alternate view points and possibility of connecting with relevant individuals who makes sense. This in deed created the effect of reading Bible in larger context which wasn't populat before. As Pastor Prince usually says 
   
     "If you take the 'text' out of 'context' what you are left with is 'con'" - Joseph Prince
     
-It applies to translators too. Being NIV as a thought-by-thought translation it's an often target for further validations with context.
+It applies to translators too, NIV as a thought-by-thought translation often stands as a good target for further validations at the reader level.
 
 Genesis 1 covers all the six days of creation by God and how He sees and creates things by His words. We can see the below passages where He found things to be **good**
 
@@ -71,7 +71,7 @@ The LORD God said, "It is not good **for the man** to be alone. I will make a he
 
 Did you see the difference? Here KJV stands right and final. The loneliness Adam had that day is no way related to today's unmarried people have. Adam's loneliness is something God was not interested because Earth needs to be populated.
 ##Conclusion
-The here in discussion isn't about whether marriage is good or bad, Instead the loneliness of Gen 2:18 has less significance with marriage and more significance with reation process, which is slightly different from church's popular preaching.
+The herein discussion isn't about whether marriage is good or bad, Instead the loneliness of Gen 2:18 has less significance with marriage and more significance with reation process, which is slightly different from church's popular preaching.
 
 NIV's the phrase "It is not good **for the man** to be alone" is not found in original text, interlinear passage has been attached here
 
