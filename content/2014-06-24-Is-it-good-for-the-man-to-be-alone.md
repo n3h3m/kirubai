@@ -69,7 +69,7 @@ Here comes the killer. As usual NIV has proved it's out of context translation. 
 >Genesis 2:18(NIV)
 The LORD God said, "It is not good **for the man** to be alone. I will make a helper suitable for him."
 
-Did you see the difference? For KJV and other more literal translations, the loneliness of Adam that day was no equivalent to today's state of being single. Adam's loneliness was something God didn't find good since populating the Earth was his major plan.
+Did you see the difference? For KJV and other more literal translations, the loneliness of Adam that day was no equivalent to today's state of being single. Adam's loneliness was something God didn't find good since populating the Earth was his major plan. If Adam felt lonely without Eve, It should be considered as fundamental design flaw of Eden since before fall it was head to head compared with Heaven (Gen 2:9 & Rev 22:2)
 ##Conclusion
 The herein discussion isn't about whether marriage is good or bad, Instead the loneliness of Gen 2:18 has less significance with marriage and more significance with creation process, which is slightly different from church's popular preaching.
 
