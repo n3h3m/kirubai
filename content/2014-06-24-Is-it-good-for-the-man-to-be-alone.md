@@ -73,7 +73,7 @@ Did you see the difference? Here KJV stands right and final. The loneliness Adam
 ##Conclusion
 I am not coming to promote whether marriage is good or bad. The point I am bringing is the understanding that Genesis 2:18 has nothing to with marriage. It has different context and different meaning than we have normally understood and preached today.
 
-NIV's the phrase "It is not good **for the man** to be alone" is not found in original text. Here is the interlinear passage I have attached
+NIV's the phrase "It is not good **for the man** to be alone" is not found in original text, interlinear passage has been attached here
 
 [http://biblehub.com/interlinear/genesis/2-18.htm][1]
 
@@ -82,4 +82,4 @@ NIV's the phrase "It is not good **for the man** to be alone" is not found in or
   [1]: http://biblehub.com/interlinear/genesis/2-18.htm
   [2]: https://dl.dropboxusercontent.com/u/104163136/kirubai.in/2014-06-24%20It%20is%20not%20good%20that%20the%20man%20should%20be%20alone/Genesis%202.18%20Interlinear%20Hebrew.png
   
-Considering this larger context I'm just smiling by remembering `1 Corinthians 7:1` & `Matthew 19:10`. Amen
+Considering this larger context NIV's interpretation diretly contradicts with `1 Corinthians 7:1` & `Matthew 19:10`.
