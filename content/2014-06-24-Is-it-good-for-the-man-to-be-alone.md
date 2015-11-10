@@ -71,7 +71,7 @@ The LORD God said, "It is not good **for the man** to be alone. I will make a he
 
 Did you see the difference? Here KJV stands right and final. The loneliness Adam had that day is no way related to today's unmarried people have. Adam's loneliness is something God was not interested because Earth needs to be populated.
 ##Conclusion
-I am not coming to promote whether marriage is good or bad. The point I am bringing is the understanding that Genesis 2:18 has nothing to with marriage. It has different context and different meaning than we have normally understood and preached today.
+The here in discussion isn't about whether marriage is good or bad, Instead the loneliness of Gen 2:18 has less significance with marriage and more significance with reation process, which is slightly different from church's popular preaching.
 
 NIV's the phrase "It is not good **for the man** to be alone" is not found in original text, interlinear passage has been attached here
 
